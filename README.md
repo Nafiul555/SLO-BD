@@ -1,0 +1,1 @@
+The official website of SLO Bangladesh (Show Love to Others)—a non-governmental organization dedicated to collective and individual aid coordination. SLO Bangladesh strives to bridge the gap between the haves and have-nots, fostering self-reliance, reducing class divisions, and ensuring rapid aid response to both natural and man-made calamities.
